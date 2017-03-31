@@ -3,3 +3,7 @@ Kia haal haiin yupogopo
 Anyounghasiyo
 Khumaaao
 Hugopot GAW JAW
+PAGAL
+OLALALALLA
+LALALALALLAALAAAALAA
+BLA BLA BLA BLAAAA
